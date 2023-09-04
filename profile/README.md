@@ -1,4 +1,4 @@
-# SKT FLY AI Challenger 3기 팀 "모두랑"
+# SKT FLY AI Challenger 3기 최우수상 🏆 수상작 "아가랑"
 
 <br/>
 <br/>
